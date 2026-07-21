@@ -15,7 +15,7 @@ Outside of coding, I capture moments through  📸 photography and tackle challe
 
 Let’s Connect
 - LinkedIn: (https://www.linkedin.com/in/tisha-patience-malongo/)  
-- Email: tishapatiencemalongo@gmail.com  
+
 
 
 
